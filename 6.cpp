@@ -1,3 +1,0 @@
-qqqqqqqqqq
-wwwwwwwr
-rrrrrrrr
